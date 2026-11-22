@@ -1,0 +1,8 @@
+Only for android ?
+🤤         🤤
+  🤤     🤤
+    🤤 🤤
+     🤤
+     🤤
+     🤤
+     🤤
