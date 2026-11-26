@@ -1,8 +1,2 @@
-Only for android ?
-🤤         🤤
-  🤤     🤤
-    🤤 🤤
-     🤤
-     🤤
-     🤤
-     🤤
+Compile Website To .apk 
+open source simple project :)
